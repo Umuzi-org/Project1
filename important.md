@@ -1,0 +1,2 @@
+Making sure I fully understand the work, It is very important to make sure that you fully understand the work than rushing to finish, becuase one of the biggest risks of rushing is the higher probability for mistakes.
+Profesionals do not rush but they are competent.
